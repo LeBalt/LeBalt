@@ -51,4 +51,4 @@ A few personal projects in the health, science & lifestyle space. Early-stage, m
 
 ---
 
-*Open to opportunities · SAS Base certified · Once ran a ski trip for 250+ people*
+*Open to opportunities · SAS Base certified*
